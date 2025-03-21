@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Fatimataiba77
+- 👋 Hi, I’m Fatima Taiba 
 - 👀 I’m interested in Data Analysis, Business Analytics and Development
 - 🌱 I’m currently learning Microsoft Certification In Power BI
 - 📫 You can reach out to me on my LinkedIn - www.linkedin.com/in/fatima-taiba-sayyed157
